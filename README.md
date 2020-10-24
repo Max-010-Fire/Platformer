@@ -60,7 +60,7 @@ While bonuses active – screen colored in:
 _Note: that you can use Miro or Microsoft Whiteboard to easy sharing your activities_
 https://miro.com/welcomeonboard/qWMg3pNzSY2y2m8YKjWtlVFqzLQ2fvxVLW6fG0c1Wj4pqo
 HI9MiZ0MbQmhY14nEz
-
+Link to game
 https://yadi.sk/d/_9NiJ2H9sPVe1w
 
 
